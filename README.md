@@ -1,0 +1,1 @@
+LEI DE NEWTON
